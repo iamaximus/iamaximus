@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iamaximus
-- 👀 I’m interested in :cloud: ♟️ 🖌️
+- 👀 I’m interested in ☁️ ♟️ 🖌️
 
 
 <!---
